@@ -15,4 +15,4 @@ Ultimate (answer in English): https://www.blooket.com/set/6233642ffbfe1f126bf4b4
 
 Ultimate Ultimate (answer in both French and English): https://www.blooket.com/set/62336476fbfe1f126bf4b946
 
-If you notice any errors, please do not hesitate to contact me on teams
+If you notice any errors, please do not hesitate to contact me on microsoft teams
